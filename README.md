@@ -1,4 +1,4 @@
 - 👋 Eu sou Paulo Hugo Rothechedl Cavalieri
-- 👀 Tenho interesse em Pentest e redes. Estou me especializando nessa área
+- 👀 Tenho interesse em Pentest e redes e estou me especializando nessa área!!
 - 📫 Meios de contato 
         - phrc_7@hotmail.com
